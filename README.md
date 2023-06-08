@@ -1,1 +1,1 @@
-# NH-C-I-Hi88
+NHÀ CÁI Hi88 - Cái tên nhà cái Hi88 là cái tên đã quá quen thuộc với tất cả anh em yêu thích bộ môn cá cược ăn tiền. Tuy chỉ mới thành lập cách đây không lâu tuy nhiên nhà cái đã nhanh chóng chiếm được sự yêu mến của các cược thủ bởi kho game khổng lồ cùng các chính sách tặng thưởng hấp dẫn. - https://hi88c.us/nha-cai/
